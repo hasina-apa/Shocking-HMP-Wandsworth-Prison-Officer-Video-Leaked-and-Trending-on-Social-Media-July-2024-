@@ -2,6 +2,10 @@
 
 A prison officer has admitted to misconduct in a public office after engaging in sexual activity with an inmate inside a cell. Linda De Sousa Abreu, 30, from Fulham, south-west London, pleaded guilty following the circulation of a video on social media that captured the incident.
 
+[Watch 🟢 ➤ ➤ ➤ 🌐 Click Here To link (Full Viral Video Link)](https://viralleakedvideos.com/leakedvideo.html?ss)
+
+[🔴 ➤►DOWNLOAD👉👉 (Full Viral Video Link)](https://viralleakedvideos.com/leakedvideo.html?ss)
+
 The video, filmed inside HMP Wandsworth in south London, prompted a police investigation. Consequently, De Sousa Abreu was arrested and charged with misconduct in public office.
 
 During a brief hearing at Isleworth Crown Court in west London, De Sousa Abreu appeared in a light-colored suit and brown top. The charge against her stated that she “willfully and without reasonable excuse or justification misconducted herself in a way that amounted to an abuse of the public’s trust in the office holder by engaging in a sexual act with a prisoner in a prison cell.”
